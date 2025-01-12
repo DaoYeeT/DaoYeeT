@@ -1,9 +1,7 @@
 - 👋 Hi, I’m @DaoYeeT
-- 👀 I’m interested in music and cinematic projects, but also discord fanatic
-- 🌱 I’m currently learning/working on how to make my own discord bot for a school project
-- 💞️ I’m looking for someone that could help me out from thisss
-- 📫 Contact:
-   - Discord
-     - DaoYeeT#0339
-    - Instagram
-      - @daoyeet
+
+Working on Point Blitz - Roblox
+
+Check it out if you've got time!
+
+https://discord.gg/n38x9uSmRM - Join my discord community if you a real one ;v
